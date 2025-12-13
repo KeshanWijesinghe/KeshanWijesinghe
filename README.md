@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Web development**
 
-- 📫 How to reach me **viperkeshan619@gmail.com**
+- 📫 How to reach me **wijesinghe.kbhanuka@gmail.com**
 
 </td>
 <td width="50%" align="center">
